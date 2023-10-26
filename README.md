@@ -1,1 +1,1 @@
-Oi eu sou o Antonio Carlos Borges Netto e aluno do Professor diogo do C.E.A.D
+Oi eu sou o Antonio Carlos Borges Netto e sou aluno do Professor diogo do C.E.A.D
